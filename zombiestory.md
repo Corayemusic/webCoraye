@@ -1,2 +1,2 @@
-es una historia de zombies
+es una historia de zombies buenos
 
